@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Welcome to Andre's Wealth with Purpose blog!
 
-I'm glad you are here. I plan to talk about ...
+I'm glad you are here. I plan to talk about wealth protection and creation.
